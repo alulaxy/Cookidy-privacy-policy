@@ -1,5 +1,3 @@
-# Privacy Policy for Cookidy
-
 **Last updated: October 15, 2025**
 
 ## Introduction
