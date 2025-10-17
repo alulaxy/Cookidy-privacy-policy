@@ -41,7 +41,7 @@ We may update this privacy policy from time to time. Any changes will be posted 
 
 ## Contact Us
 If you have any questions about this privacy policy, please contact us at:
-- Email: alulaxy@gmail.com
+- Email: cookidyai@gmail.com
 
 ## Your Rights
 You have the right to:
